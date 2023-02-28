@@ -2,3 +2,12 @@
 
 ## For Step by Step Instructions
 - [Step by Step Instructions](https://github.com/stacksimplify/azure-aks-kubernetes-masterclass/tree/master/19-Azure-DevOps-with-AKS)
+jcgeiuciuhf
+eververv
+v
+e
+ve
+b
+evetbt
+erver
+rg
